@@ -1,16 +1,20 @@
-### Hi there 👋
+salut 👋
+SAIHTAM3/lisez-moi
 
-<!--
-**SAIHTAM3/SAIHTAM3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🧠 moi
 
-Here are some ideas to get you started:
+J'ai 16 ans, j'apprends le développement python 🙂
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌍 Mon site Web en cours de développement 🌍 https://saihtamcfg.fr
+
+📺 Youtube : SAIHTAM 📺 💬Mon serveur Discord | discord.gg/peste💬 ☢ Mon Bot Discord ☢ 🏆 Mes compétence   
+
+Mes Objectifs
+
+🐍 J'apprends le Python depuis 4 mois 🐍 💠 J'apprends le Développement Web, pour créer mon propre site internet 💠 🔐 J'apprends la Cybersécurité pour pouvoir me protéger sur Internet 🔐
+
+Maitriser le Python 🌍 Développer mon propre site Web 🌍
+
+Contacter
+
+abonnesansvideo289@gmail.com
