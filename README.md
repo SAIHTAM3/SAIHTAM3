@@ -15,7 +15,7 @@ Mes Objectifs
 
 Maitriser le Python 🌍 Développer mon propre site Web 🌍
 
-Contacter
+Contacte
 
 abonnesansvideo289@gmail.com
 
