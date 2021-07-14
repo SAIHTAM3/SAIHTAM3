@@ -18,4 +18,15 @@ Maitriser le Python 🌍 Développer mon propre site Web 🌍
 Contacter
 
 abonnesansvideo289@gmail.com
-https://64.media.tumblr.com/df1476b6e56e8bc26e6380166a419fdb/tumblr_nyc7pcJ1vq1uob8tfo1_500.gif
+
+
+
+
+
+![R](https://user-images.githubusercontent.com/86322298/125692696-d464afda-344c-490f-befa-3143017f2581.gif)
+
+
+
+
+
+
