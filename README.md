@@ -7,7 +7,7 @@ J'ai 16 ans, j'apprends le développement python 🙂
 
 🌍 Mon site Web en cours de développement 🌍 https://saihtamcfg.fr
 
-📺 Youtube : SAIHTAM 📺 💬Mon serveur Discord | discord.gg/peste💬 ☢ Mon Bot Discord ☢ 🏆 Mes compétence   
+📺 Youtube : SAIHTAM 📺 💬Mon serveur Discord | https://discord.gg/9nBnQyCYMP  Mon bute est d'apprendre a crée des logiciel🔐    
 
 Mes Objectifs
 
